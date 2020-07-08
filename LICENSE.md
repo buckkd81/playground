@@ -1,1 +1,1 @@
-I own it!
+It is mine!
